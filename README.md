@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Karczel
-- 👀 I’m interested in gaming, Vtuber models
-- 🌱 I’m currently learning in High school
+- 👋 Hi, I’m Karczel
+- 👀 I’m interested in Digital Arts & Animations, Games and Web Design & Developments!
+- 🌱 I’m fresh outta highschool
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
